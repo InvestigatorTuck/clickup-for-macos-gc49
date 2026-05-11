@@ -1,4 +1,4 @@
-
+Enhance ClickUp for macOS with ClickUp for macOS instant Addon - custom themes and offline access, the #1 addon. Includes custom themes and offline access for a smoother
 
 
 
